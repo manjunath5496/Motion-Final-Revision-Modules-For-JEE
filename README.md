@@ -1,1 +1,3 @@
-# Motion-Final-Revision-Modules-For-JEE
+<h2>Motion Final Revision Modules For JEE </h2>
+
+<p><strong>Engineering and Medical</strong> being one of the most competitive exams needs through preparation.&nbsp;<strong>Motion Final Revision Modules For JEE </strong>help you to enhance and sharpen your preparation for JEE Main and Advanced exam and provide you the revision notes of <strong>Physics</strong>, <strong>Chemistry</strong> and <strong>Mathematics</strong>. It is really an asset to those who plan to appear in various Competitive/Entrance Examinations and promotes exam awareness among aspirants and encourages them to rectify their weakness and build up their strength.</p>
